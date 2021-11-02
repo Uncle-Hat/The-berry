@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @The-berry
-- 👀 I’m interested in programation and coding
+- 👀 I’m interested in programmation and coding
 - 🌱 I’m currently learning security and web development
 - 💞️ I’m looking to collaborate on any proyect at i can learn more
 - 📫 You can reach me on instagram e.s.d.berry
